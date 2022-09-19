@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Joevianney
+- 👀 I’m interested in learning to improve the learn sector
+- 🌱 I’m currently learning software engineering on Healthcare
+- 💞️ I’m looking to collaborate on anything related to helping me
+- 📫 How to reach me vijjroyalty@gmail.com
